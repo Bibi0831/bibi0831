@@ -9,3 +9,7 @@ Meu nome é Gabrielly Lopes
   ### Você entrar em contato comigo 📫
 
   gabriellynaslopes@gmail.com
+
+
+
+![](https://tenor.com/pt-BR/view/strawberry-shortcake-scared-concerned-cringe-grimace-gif-13503367321499280442)
